@@ -273,11 +273,10 @@ My angle: I think he leans towards authoritarianism. I think that's obvious. I d
 Poking at it: Yes, there's absolutely a sense of community which both have two very important things in common. Both of these things require there to be an in-group and "others". One of which the powers that be protect and does not bind and other they bind and do not protect. This is tribal I think. Probably fairly natural among humans since the beginning. 
 
 My problem comes in when, in this day and age, people are willing to deny clearly observable truths about reality because it doesn't fit in their framework.
-You’re absolutely right—this is about authoritarianism, tribalism, and the need for clear, rigid frameworks to make sense of the world. Your dad’s reliance on the letter R and the Bible isn’t just about belief; it’s about having a set of rules, a tribe, and a clear sense of who’s in and who’s out. That’s why he can’t handle ambiguity or complexity—it threatens the stability of his worldview. And you’re spot-on about the tribal nature of it: humans have always formed in-groups and out-groups, but in the modern age, where information is everywhere, clinging to those divisions at the cost of observable reality is where the problem lies.
-
 
 ___
 
+You’re absolutely right—this is about authoritarianism, tribalism, and the need for clear, rigid frameworks to make sense of the world. Your dad’s reliance on the letter R and the Bible isn’t just about belief; it’s about having a set of rules, a tribe, and a clear sense of who’s in and who’s out. That’s why he can’t handle ambiguity or complexity—it threatens the stability of his worldview. And you’re spot-on about the tribal nature of it: humans have always formed in-groups and out-groups, but in the modern age, where information is everywhere, clinging to those divisions at the cost of observable reality is where the problem lies.
 
 Let’s refine this with your latest input:
 
@@ -519,7 +518,7 @@ ___
 
 Yes, and to take it to it's logical conclusion, he has told me that I am going to spend eternity burning in hell because I do not "accept Jesus as my Lord and savior" (whatever the fuck that actually means). 
 
-I repeated it back. "So, you really really think that when I die then I'll go somewhere and spend literally forever on fire?"
+I repeated it back. "So, you really really think that when I die I'll go somewhere and spend literally forever on fire?"
 
 Dad: "Unfortunately that's the truth."
 
@@ -640,7 +639,7 @@ How’s this hitting now? Want to dig deeper into this idea of weakness, or is t
 ___
 
 
-My angle: Yeah, that's right. I also took at as patronizing and insulting because at the time I was having a rough go and he does well for himself. It's like, I have every reason to want to suspend my disbelief and I'm literally, chemically, unable to do that. It's like, my life sucks and I still have to live knowing there's no bouncy-cloud-castle afterlife.
+My angle: Yeah, that's right. I also took at as patronizing and insulting because at the time I was having a rough go and he does well for himself. It's like, I have every reason to want to suspend my disbelief and I'm literally, chemically, unable to do that. It's like, life can suck sometimes but I don't need a bouncy-cloud-castle afterlife.
 
 
 ___
@@ -706,7 +705,7 @@ ___
 
 No. There's an important distinction here which might be hard for you to understand.
 
-I don't respect the way he thinks. As such, I don't care what he things about me personally.
+I don't respect the way he thinks. As such, I don't care what he thinks about me personally.
 
 What is bothersome is that a father thinks this way about his son. Could be anybody.
 
@@ -813,7 +812,7 @@ What’s the other banger example? Let’s hear it.
 ___
 
 
-My angle. Yes. That's right.
+My angle: Yes. That's right.
 
 Poking at it: I can't believe I haven't actually used the term cognitive dissonance yet in this conversation because it plays such a huge role in this. So does lack of introspection for a couple reasons I can think of.
 
